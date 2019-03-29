@@ -1,5 +1,8 @@
 # OI-OTHELLO-
+
 ORDINATEUR INDIVIDUEL, NUMERO 1, OCTOBRE 1978, PAGES 50-52
+
+https://www.abandonware-magazines.org/affiche_mag.php?mag=38&num=4100&album=oui
 
 
 
